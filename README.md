@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development and data science.
 - 🌱 I’m currently learning data science.
 - 📫 How to reach me ?
-- For this simply mail me at sushilbhatta7777@gmail.com
+- For this simply mail me at sushilbhatt2025@gmail.com
 
 
 ## 🌐 Socials:
